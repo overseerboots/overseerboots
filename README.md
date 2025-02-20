@@ -1,1 +1,1 @@
-# I am happy because everybody loves me
+# I am happy because everyone loves me
